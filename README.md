@@ -1,0 +1,1 @@
+# Kurva-Kecepatan-Radial-HD-80715
